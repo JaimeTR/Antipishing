@@ -3,3 +3,5 @@ Si encuentras un dominio con pishing reportar la web revisando los datos del dom
 
 
 ## Nunca olvides que los bancos no mandan link 
+
+### HAZ EL BIEN SIN MIRAR A QUIEN ♥
